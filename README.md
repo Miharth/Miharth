@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Miharth
-- 👀 I’m interested in coding and grphic work 
+- 👀 I’m interested in coding and graphic work 
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me sidharthasahnii@gmail.com
